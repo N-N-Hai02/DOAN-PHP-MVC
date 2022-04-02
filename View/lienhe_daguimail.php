@@ -1,0 +1,1 @@
+<h2 style="color: #12ae17;">Đã Gữi Mail Xong Rồi ! chung tôi sẽ liên hệ với bạn sớm thôi. Hãy chờ chúng tôi nhé </h2>
